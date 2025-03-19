@@ -1,1 +1,1 @@
-# Set-UP-https://drive.google.com/drive/my-drive?dmr=1&ec=wgc-drive-hero-goto
+# Set-UP-https://drive.google.com/file/d/1egyKSoGOffnUFHKKF3emLNhd4WOP9eIs/view?usp=drive_link 
